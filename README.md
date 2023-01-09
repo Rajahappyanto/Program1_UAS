@@ -14,4 +14,4 @@
 
 ## Link Penjelasan dalam bentuk Pdf
 
-## [Klik Disini](https://drive.google.com/file/d/1sSNiuldme0m4qL7--fRu9VFQ8oQ-qEof/view?usp=sharing)
+## [Klik Disini](https://drive.google.com/file/d/1xgKCezSV-5MsQ3xp-nRhy4fvgl9rl8oa/view?usp=sharing)
